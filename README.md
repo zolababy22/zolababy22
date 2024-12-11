@@ -5,9 +5,15 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-- Call and sms: 07451203515
+I will definitely make you feel happy & relaxed. l offer do an amazing service. always take my time and never rush!
+MY WET SWEAT PUSSY IS READY TO TAKE IN SOME GOOD HARD COCK THAT WANT SOME JUICES. ... I am always in a cheerful mood and always creamy
+WhatsApp: +441263200263
+CONTACT INFO;
+• Telegram:@zolababy22
+• Call & sms: 07451203515
+. Telegram link: https://t.me/zolababy22
+•iMessage: annazola23@gmail.com
 
-<!---
 zolababy22/zolababy22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
